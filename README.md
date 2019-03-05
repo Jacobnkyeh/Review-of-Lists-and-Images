@@ -1,1 +1,0 @@
-# Review-of-Lists-and-Images
